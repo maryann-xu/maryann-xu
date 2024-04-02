@@ -1,0 +1,4 @@
+- Hi, my name is Maryann.
+- My pronouns are she/her.
+- I'm currently studying a BSc in Applied Statistics and Psychology at the University of Auckland.
+- Fun facts: I love crochet, ballet and Taylor Swift.
